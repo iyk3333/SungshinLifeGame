@@ -64,4 +64,4 @@
 <br/>
 <br/>
 
-✅ 자세한 설명: https://fluorescent-cornet-5b7.notion.site/Sharethings-b02971a09f784521a947426f45be87dd
+✅ 자세한 설명: https://fluorescent-cornet-5b7.notion.site/Sungshin-Life-19efb78cdd8048b78fd03077eb31b1d5
